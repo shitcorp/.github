@@ -1,0 +1,1 @@
+# Shitcorp - shitty discord stuff made right
